@@ -7,3 +7,5 @@ We are a 501c3 Non-Profit organization dedicated to the preservation and promoti
 * Website: [HenryCountyARS.org](https://henrycountyars.org)
 * Email: [HenryCountyARS@gmail.com](mailto://henrycountyars@gmail.com)
 
+### Social Media
+* [Facebook](https://www.facebook.com/groups/1599063946991982)
